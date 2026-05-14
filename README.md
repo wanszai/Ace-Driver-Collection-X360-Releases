@@ -26,3 +26,7 @@ namcoc71.zip
 namcoc74.zip
 
 THIS CONTAINS NO ROMS OR GAME CONTENT OF ANY KIND. YOU MUST SUPPLY YOUR OWN ROMS.
+
+All of my releases are presented here for everyone free of charge and always will be.
+However, if youd like to leave a tip, by all means!
+https://ko-fi.com/wanszai
